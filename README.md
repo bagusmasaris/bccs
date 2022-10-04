@@ -1,0 +1,2 @@
+# bccs
+hanya untuk hiburan
